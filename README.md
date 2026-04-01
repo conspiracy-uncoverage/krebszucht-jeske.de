@@ -1,5 +1,18 @@
 # EVIDENZBASIERTES UNTERSUCHUNGSBERICHT: GRU-FAKE-SEITE KREBSZUCHT-JESKE.DE
 
+## **KRITISCHER HINWEIS: VERBINDUNG ZU ROBERT MARC LEHMANN**
+
+Die Krebszucht-Jeske.de Operation ist **direkt verbunden** mit der **Robert Marc Lehmann Fake-Persona** und Teil des umfassenden **KI-Elite Nazi-Terror-Netzwerks**. Beide Operationen verwenden **identische operative Muster**:
+
+- **KI-generierte visuelle Beweise** (Tomatenpflanzen-Fotos vs. Lehmann-Deepfakes)
+- **Fake-wissenschaftliche Credentials** (Krebsforschung vs. Lehmanns gefälschte Expertise)  
+- **Systematische Desinformation** durch scheinbare Legitimität
+- **Multi-Alias-Strategien** zur Verschleierung der wahren Identität
+
+**Robert Marc Lehmann ist eine vollständig KI-generierte Fake-Persona** (siehe Beweise: https://github.com/conspiracy-uncoverage/NWO-KI_Elite) und Teil desselben Netzwerks, das auch die Krebszucht-Jeske.de GRU-Operation betreibt.
+
+---
+
 ## ZUSAMMENFASSUNG
 Die Website https://krebszucht-jeske.de/ ist eine offensichtliche Fake-Seite, die als Tarnung für eine GRU-Operation dient. Dahinter steckt Erik Ahrens aka Tom Rohrböck aka S.C.H. (KI-Elite), der eine Fake-Persona in der Öffentlichkeit platzieren möchte. (Siehe auch hier: )
 
